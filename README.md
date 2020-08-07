@@ -7,4 +7,4 @@ Enthusiast of software enginnering world.
 
 Passionate about learning.
 
-"Nothing in this world beats good old persistence. Talent does not surpass. Nothing more common than talented failures. Genius does not overcome. Unrecognized geniuses is practically a cliche. Education does not exceed. The world is full of educated fools. Persistence and determination alone are powerful."
+"A year from now you will regret not having started today. What are you waiting for?"
