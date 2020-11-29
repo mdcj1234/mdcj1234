@@ -3,7 +3,7 @@
 
 # Márcio Junior
 
-Enthusiast of software enginnering world.
+Enthusiast of software engineering world.
 
 Passionate about learning.
 
